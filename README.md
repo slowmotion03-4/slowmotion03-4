@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @slowmotion03-4
+- seja bem-vindo aou meu perfil 💜
 
 
 <!---
