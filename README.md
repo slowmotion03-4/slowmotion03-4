@@ -1,5 +1,11 @@
 - 👋 Hi, I’m @slowmotion03-4
 - seja bem-vindo aou meu perfil 💜
+- estudante
+  
+
+
+
+!{}(https://media1.tenor.com/m/hol3go6B6awAAAAC/gjirlfriend.gif)
 
 
 <!---
